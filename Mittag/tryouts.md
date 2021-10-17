@@ -14,6 +14,10 @@ Sieht lecker aus, ma probieren :D
 
 - https://www.chefkoch.de/rezepte/1844061298739441/Mozzarella-Haehnchen-in-Basilikum-Sahnesauce.html
 
+**Pasta**:
+- https://www.rewe.de/rezepte/pasta-alla-norma/
+- https://www.rewe.de/rezepte/rigatoni-tomatensosse/
+
 
 **Aufläufe:**
 
@@ -44,6 +48,9 @@ Sieht lecker aus, ma probieren :D
 - https://www.chefkoch.de/rezepte/1223051227622238/Tortellinisalat-mediterraner-Art.html
 - https://www.lecker.de/ruck-zuck-ravioliauflauf-73319.html (Schon mal gemacht, evtl eher als gutes Grundrezept für Tom-Mozz Auflauf mit torteloni?)
 - https://www.chefkoch.de/rezepte/652541166715979/Spaghetti-mit-Tomaten-Pesto.html (verfeinertes pesto)
+
+**Pizza:**
+- https://www.chefkoch.de/rezepte/1674611275463778/Gefuellte-Pizzabroetchen.html
 
 
 **Sonstige Inspirationen:**

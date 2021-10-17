@@ -11,7 +11,6 @@
 - https://www.rewe.de/rezepte/bunter-eisberg-salat-feta/
 - https://www.rewe.de/rezepte/griechischer-kritharakisalat/
 - https://www.rewe.de/rezepte/sommersalat-gegrillten-haehnchenstreifen/
-- https://www.rewe.de/rezepte/gnocchi-tomaten-rucola/
 - https://www.rewe.de/rezepte/mediterraner-gnocchi-salat/
 
 
