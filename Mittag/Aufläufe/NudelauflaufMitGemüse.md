@@ -1,5 +1,7 @@
 # Nudelauflauf mit Gemüse
 
+![Ein Bild](_images/nudelauflaufmitgemuese.png)
+
 ## Overview
 40 min
 
