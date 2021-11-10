@@ -1,10 +1,7 @@
 # Tryouts
 
 **Warmes:**
-
-- https://www.chefkoch.de/rezepte/1674611275463778/Gefuellte-Pizzabroetchen.html
-- https://www.chefkoch.de/rezepte/740511176724575/Die-besten-Pizzabroetchen-aller-Zeiten.html
-
+- https://www.lidl-kochen.de/rezeptwelt/gefuellte-champignons-mit-mozzarella-145742?ref=search
 
 **Salate:**
 - https://www.rewe.de/rezepte/schneller-eisberg-schichtsalat-im-glas/
