@@ -35,6 +35,9 @@ Sieht lecker aus, ma probieren :D
 - https://www.reddit.com/r/VegRecipes/comments/oeyzi6/one_of_the_easiest_ways_to_enjoy_a_variety_of/
 - https://www.reddit.com/r/VegRecipes/comments/epq93m/10_minute_curry/
 - https://veggie-einhorn.de/curry-reis-pfanne/
+- https://www.gutekueche.at/gemuse-reispfanne-rezept-37556
+- https://www.chefkoch.de/rezepte/1810471293281955/Paprika-Reispfanne-mit-Joghurtsauce.html
+- https://www.rewe.de/rezepte/reispfanne-gemuese/
 
 
 **Gefülltes Gemüse:**
@@ -51,6 +54,7 @@ Sieht lecker aus, ma probieren :D
 
 **Pizza:**
 - https://www.chefkoch.de/rezepte/1674611275463778/Gefuellte-Pizzabroetchen.html
+- https://www.foodtempel.de/einfache-italienische-vier-kaese-pizza-mit-parmesan-und-mozzarella/
 
 
 **Sonstige Inspirationen:**
