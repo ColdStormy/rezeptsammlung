@@ -5,10 +5,11 @@
 #### Teig
 
 Für 1 Backblech:
-- 200g Weizen
-- 100ml Wasser (50% vom Weizen)
+- 250g Weizen
+- 125ml Wasser (50% vom Weizen)
 - 0.5 Würfel frische Hefe
 - 1tl Salz
+- 1El Öl
 
 #### Tomatenbelag
 - Ketchup
@@ -36,7 +37,7 @@ Salami-Gemüse:
 ## Zubereitung
 
 #### Teig
-Alles in einem Topf und mit Handruehrgeraet kneten, 30 Minuten aufgehen lassen.
+Hefe in lauwarmen Wasser auflösen und dann alles in einem Topf mit Handruehrgeraet kneten, 30 Minuten aufgehen lassen.
 
 #### Tomatenbelag
 Einfach nach Belieben mischen und auf den Teig schmieren.

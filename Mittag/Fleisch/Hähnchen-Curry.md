@@ -6,22 +6,24 @@
 ## Zutaten
 Für 4 Personen:
 
+- 500 g Hähnchenbrustfilet
 - 1 Zwiebel
 - 1 Knoblauchzehe
-- 3 Tomaten
-- 500g Hähnchenfilet
-- 2EL Öl
-- 1-2 EL Currypulver
-- 1 Dose cremige Kokosmilch (425ml)
-- 250g junger Spinat
-- Salz
-- Pfeffer
+- 2 EL Kokosöl
+- 500 ml Kokosmilch
+- 1-3 große EL Rote Currypaste je nach Schärfe (grüne, gelb geht auch)
+- 1/2 Limette gepresst
+- Salz, Pfeffer und Chili
+- Reis zum Servieren
+
+Dazu besser noch Gemüse wie Paprika, Pilze, Zucchini, Spinat. Wird sonst recht langweilig/eintönig.
 
 ## Zubereitung
 
-1. Zwiebel schälen und fein würfeln. Knoblauch schälen und durch eine Knoblauchpresse drücken. Tomaten waschen, putzen und in Würfel schneiden. Fleisch waschen, trocken tupfen und in Würfel schneiden.
-2. Öl in einer Pfanne erhitzen. Fleisch darin unter Wenden 4–5 Minuten braten, dann Zwiebeln und Knoblauch zugeben. Nach ca. 2 Minuten mit Curry bestäuben und kurz andünsten. Tomatenwürfel zugeben und 3–4 Minuten weitergaren. Mit Kokosmilch ablöschen und ca. 10 Minuten köcheln lassen.
-3. Spinat waschen, verlesen und trocken schütteln. Spinat zum Hähnchen geben und zusammenfallen lassen. Mit Salz und Pfeffer abschmecken. Dazu schmeckt Naan-Brot
+1. Hähnchenbrustfilet in große mundgerechte Würfel schneiden. Zwiebel und Knoblauch schälen und fein hacken.
+2. Kokosöl in einer großen Pfanne erhitzen. Filet salzen, dann von allen Seiten circa 10 Minuten braten, dabei regelmäßig wenden. Zwiebel und Knoblauch hinzufügen und weitere 2-3 Minuten garen. 
+3. Kokosmilch, Currypaste und Limettensaft in die Pfanne geben. 5-10 Minuten einköcheln lassen, dann mit Salz, Pfeffer und Chili abschmecken. Mit Reis servieren.
+
 
 ## Quelle
-iwo auf lecker.de 
+https://kochkarussell.com/einfaches-chicken-curry-kokosmilch/
