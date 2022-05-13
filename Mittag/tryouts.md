@@ -2,6 +2,10 @@
 
 Sieht lecker aus, ma probieren :D
 
+**Vegetarisch:**
+
+- https://www.rewe.de/rezepte/zucchini-cordon-bleu/
+
 **Lasagne:**
 
 - https://www.rewe.de/rezepte/gemuese-lasagne/#video
