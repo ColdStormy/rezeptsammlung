@@ -39,6 +39,8 @@ Sieht lecker aus, ma probieren :D
 - https://www.chefkoch.de/rezepte/1810471293281955/Paprika-Reispfanne-mit-Joghurtsauce.html
 - https://www.rewe.de/rezepte/reispfanne-gemuese/
 
+- https://www.reddit.com/r/recipes/comments/u4wjxq/paneer_kolhapuri_indian_spicy_cheese_dish/
+
 
 **Gefülltes Gemüse:**
 
