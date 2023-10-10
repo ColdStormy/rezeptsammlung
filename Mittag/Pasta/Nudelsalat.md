@@ -1,6 +1,19 @@
-# Nudelsalat
+# Nudelsalate in verschiedenen Varianten
 
-## Zutaten
+## Mit Basilikum-Pesto alla Genovese
+
+Folgendes mit gekochten Nudeln mixen: 
+
+- Tomaten
+- Nudeln
+- Pesto alla Genovese
+- Italienische Kräuter
+- Pfeffer
+- Petersilie
+
+## Mit Mozzarella
+
+### Zutaten
 - 400g tomaten
 - 2x mozz
 - 200g pesto rustico
@@ -10,7 +23,7 @@
 - basilikum
 - (balsamico essig)
 
-## Zubereitung
+### Zubereitung
 
 1. Nudeln kocehn
 2. toms schnibbeln
